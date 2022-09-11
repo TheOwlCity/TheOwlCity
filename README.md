@@ -4,4 +4,4 @@
 <br>♡ 📚 Currently studying to take my Exin Ethical Hacker(CEH) Certification and improving my programming and cloud skills.<br />
 ♡ 🎮 Gamer and influencer on free time.
 <br>♡ 🎵 The Owl City is my favorite song.<br />
-♡🐇 Profile Art was made by my husband.
+♡ 🐇 Profile Art was made by my husband.
